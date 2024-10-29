@@ -1,0 +1,1 @@
+https://lovecalculatorbyfurqan.netlify.app/
